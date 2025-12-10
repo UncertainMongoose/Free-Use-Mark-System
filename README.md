@@ -8,4 +8,4 @@
 
 ## Attribution
 
-All credit for the original creation of these symbols belongs to [u/CRIME_MOMMY](https://reddit.com/u/CRIME_MOMMY) on Reddit.
+All credit for the original creation of these symbols belongs to [u/CRIME_MOMMY](https://reddit.com/u/CRIME_MOMMY).
