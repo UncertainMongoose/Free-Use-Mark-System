@@ -6,6 +6,7 @@
 
 &nbsp;
 
-## Attribution
+## Notes
 
-All credit for the original creation of these symbols belongs to [u/CRIME_MOMMY](https://reddit.com/u/CRIME_MOMMY).
+* All credit for the original creation of these symbols belongs to [u/CRIME_MOMMY](https://reddit.com/u/CRIME_MOMMY).
+* The colors are from the popular Dracula Theme ("on dark" from Dracula, "on light" from Alucard), view them [here](https://draculatheme.com/contribute#:~:text=to%20maintain%20it.-,Color%20Palette,Dracula,-Alucard).
