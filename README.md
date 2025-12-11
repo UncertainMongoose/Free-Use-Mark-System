@@ -6,6 +6,8 @@
 
 ## Image Transcription
 
+A system to identify and indicate to others who are into the 'Free Use' kink what your status is. Use a sharpie or marker to modify the base design with easily identifiable levels of openness.
+
 ### Lockout 
 
 **Symbol** Filled in or shaded keyhole with a horizontal line beneath the base symbol
