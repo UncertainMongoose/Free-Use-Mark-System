@@ -4,7 +4,7 @@
 
 [![Original Post](./original_post.png)](https://www.reddit.com/r/freeuse/comments/1cp7h95/preliminary_design_for_a_free_use_symbolsystem_id)
 
-## Image Transcription
+## About
 
 A system to identify and indicate to others who are into the 'Free Use' kink what your status is. Use a sharpie or marker to modify the base design with easily identifiable levels of openness.
 
